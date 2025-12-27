@@ -83,7 +83,7 @@ Ich bringe nicht nur technische Neugier mit, sondern auch Erfahrung aus der Prax
 ## 📫 Connect
 Ich freue mich über Vernetzung und Feedback!
 
-* **Mail:** [Deine E-Mail Adresse]
+* **Mail:** gabrielstanczyk.gs@gmail.com
 * **Location:** Berlin, Germany
 
 ---
